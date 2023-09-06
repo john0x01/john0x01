@@ -12,3 +12,4 @@
 - 📫 Check out my curriculum at <a href="https://www.linkedin.com/in/joaorochame/"><strong>LinkedIn</strong></a>
 
 <strong>Languages & technologies</strong>
+![Frame 3 (1)](https://github.com/john0x01/john0x01/assets/78546581/f83f43f8-dad0-4b4c-bba4-633881827d6b)
